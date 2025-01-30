@@ -1,1 +1,0 @@
-# Clinica_Veterinaria_Paroti
